@@ -1,5 +1,5 @@
 # ichigo-paste
-Fuck Daniel
+快，叫爸爸xD 不然腿给你打折xD
 
 Daniel thinks he can release this on UC without my permission, and some very shady things are happening on discord... hes been posting the link to this and nobodies sure if hes not ratting people so oh well here it is
 
